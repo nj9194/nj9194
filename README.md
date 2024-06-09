@@ -31,6 +31,7 @@ I am a passionate and certified cloud and DevOps professional with expertise in 
 ## Get in Touch
 
 - Email: niyati9194@gmail.com
+- LinkedIn: https://www.linkedin.com/in/niyati9194/
 
 
 
